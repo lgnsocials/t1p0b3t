@@ -9,8 +9,8 @@
 
 <a href="https://tipobets5499.com/tr.php?aff=7215FA"><img src="https://resmim.net/cdn/2025/06/14/T16OV1.jpg" alt="resim yükle" border="0" /></a>
 
-<h2>Sahabet Hakkında</h2>
-<p>Sahabet, dinamik yapısı, yüksek oranlı bahis seçenekleri ve avantajlı bonusları ile 2025 yılında da bahis severlerin favori adresi olmaya devam ediyor! 🎰 Güvenilir altyapısı sayesinde, Sahabet'te spor bahislerinden canlı casino oyunlarına kadar geniş bir yelpazede eğlenceli vakit geçirebilirsiniz.</p>
+<h2>Tipobet Hakkında</h2>
+<p>Tipobet, dinamik yapısı, yüksek oranlı bahis seçenekleri ve avantajlı bonusları ile 2025 yılında da bahis severlerin favori adresi olmaya devam ediyor! 🎰 Güvenilir altyapısı sayesinde, Sahabet'te spor bahislerinden canlı casino oyunlarına kadar geniş bir yelpazede eğlenceli vakit geçirebilirsiniz.</p>
 
 <h3>Tipobet Güncel Giriş Avantajları</h3>
 <ul>
