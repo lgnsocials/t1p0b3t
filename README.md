@@ -1,7 +1,6 @@
-
-# Tipobet 2025 | Canlı Bahis, Casino, Promosyonlar ve Daha Fazlası
-
 <h1>Tipobet Güncel Adres</h1>
+
+## Tipobet 2025 | Canlı Bahis, Casino, Promosyonlar ve Daha Fazlası
 
 <h2>Tipobet Güncel adresimize ulaşmak için aşağıdaki görsele tıklayabilirsiniz</h2>
 
