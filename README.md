@@ -13,18 +13,10 @@
 
 <hr style="border:none;height:2px;background:#000;margin:20px 0;">
 
-<a href="https://shortlinkapp.com/GaIUa">
-  <img src="https://iili.io/3sm6muf.md.jpg" alt="Bayspin Giriş Görseli" border="0">
+<a href="https://tipobets5499.com/tr.php?aff=7215FA">
 </a>
 
 <h3>Bayspin Resmi Erişim Linki</h3>
 <p>
   En güncel Bayspin bağlantısına ulaşmak ve kampanyalardan haberdar olmak için yukarıdaki görselleri tıklayarak resmi bağlantıya geçiş yapabilirsin.
-</p>
-
-<hr style="border:none;height:1.5px;background:#111;margin:25px 0;">
-
-<p style="font-size:16px; margin-top:10px;">
-  🔗 <strong>Güncel Giriş Adresi İçin Tıklayınız :</strong> 
-  <a href="https://shortlinkapp.com/GaIUa" style="color:#8B0000; font-weight:bold;">GIRIS ICIN TIKLAYINIZ!</a> 
 </p>
