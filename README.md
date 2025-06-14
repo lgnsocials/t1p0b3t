@@ -3,7 +3,7 @@
 
 <h1>Tipobet Güncel Adres</h1>
 
-<h2>Tipobet Giriş Adresi</h2>
+<h2>Tipobet Güncel adresimize ulaşmak için aşağıdaki görsele tıklayabilirsiniz</h2>
 
 # <a href="https://tipobets5499.com/tr.php?aff=7215FA" title="Tipobet Giriş Adresi">🔗 Sahabet Giriş İçin Hemen Tıklayın! 🔗</a>
 
